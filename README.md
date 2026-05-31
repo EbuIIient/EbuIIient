@@ -6,7 +6,7 @@
 
 <div align="center">
 
- ${\textsf{\color{#44444} Dni if you make fun of 𝐁𝐫𝐢𝐭𝐢𝐬𝐡 people. I sound american though 😭 }}$
+ ${\textsf{\color{#44444} I LOVE erasermic !! DNI: Dekubaku sorry I do NOT support the ship, ty. }}$
 
 <img width="635" height="615" alt="image" src="https://github.com/user-attachments/assets/fc1b38c1-994a-4bea-8645-285bcbde2a04" />
 
