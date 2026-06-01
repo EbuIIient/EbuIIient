@@ -6,7 +6,7 @@
 
 <div align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Roboto+Condensed&weight=600&letterSpacing=1.5&duration=5067&pause=100&color=2A4112DA&center=true&width=435&lines=%23+.+1.+I+LOVE+erasermic+YURIII+!;%23+.+2+.BKDK+ship%2C+dniuf+or+if+we+interacted+." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&duration=5086&pause=1000&color=6D721D&center=true&width=435&lines=%23+.+1.+I+ship+EraserMic%2C+INT+PLEASE+!;%23+.+2.+Bkdk+IWEC%2C+tysm!;%23.+3.+Togachako+Int+ok+I+love+the+ship" alt="Typing SVG" /></a>
 
  ${\textsf{\color{#7d4b16} DISCLAIMER: I have VPN, so If people (who have VPN) write on your atabook please approve the mssge }}$
  
