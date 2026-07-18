@@ -12,8 +12,8 @@
 
 ${\textsf{\color{#666666}the strawpage is a wip it js has info ok}}$
 
-<img width="498" height="374" alt="image" src="https://github.com/user-attachments/assets/45963ce2-25e4-45a2-b576-dff99b078a14" />
 
+https://images-ext-1.discordapp.net/external/BqY2Jl9TdHD6A2MWX7r3ckD9qefM1RO6EpnBqL9Szzs/https/static.klipy.com/ii/c44064a00e4b7451969381d90dea1769/05/40/noHpBcwt3nuuFf6rMP9.mp4
 
 
 ${\textsf{\color{#666666}Omg is that EraserMic ?!!1 }}$
