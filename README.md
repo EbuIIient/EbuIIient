@@ -13,13 +13,6 @@
 ${\textsf{\color{#666666}the strawpage is a wip it js has info ok}}$
 
 
-<img width="800" height="1200" alt="image" src="https://github.com/user-attachments/assets/2806e6e0-6826-477e-adce-04d484dfb79a" />
+<img width="680" height="385" alt="image" src="https://github.com/user-attachments/assets/84f80940-1897-4e28-a2ff-f4bf2e730f5d" />
 
 
-
-
-<div align="center">
-
-
-
-<div align="center">
