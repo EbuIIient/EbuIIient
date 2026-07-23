@@ -10,7 +10,7 @@
 
 <a href="https://purplesheep.atabook.org/"> Atabook</a> ✶ <a href="https://yamadahizashi.straw.page/"> Straw</a> 
 
-${\textsf{\color{#666666}the strawpage is a wip it js has info ok}}$
+${\textsf{\color{#a58214}the strawpage is a wip it js has info ok}}$
 
 
 <img width="680" height="385" alt="image" src="https://github.com/user-attachments/assets/84f80940-1897-4e28-a2ff-f4bf2e730f5d" />
